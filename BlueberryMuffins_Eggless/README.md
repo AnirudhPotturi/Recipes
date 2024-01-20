@@ -15,4 +15,4 @@
 3. Add blueberries into the batter. Set some of your blueberries aside for topping.
 4. Spray or apply some oil to you cupcake tray. Portion out the batter into it.
 5. Top your batter with some more blueberries.
-6. Bake it for 360 F or 182 C. 
+6. Bake it at 360 F or 182 C for 20-30 mins. 
